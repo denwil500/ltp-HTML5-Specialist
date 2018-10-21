@@ -1,1 +1,1 @@
-# Dennis' HTML5 Specialist Repository
+# Dennis HTML5 Specialist Repository
